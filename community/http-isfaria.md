@@ -1,4 +1,4 @@
-## 💜 Olá, meu nome é Stefany Faria!
+## 💜 Oi, meu nome é Stefany Faria!
 
 - 🎓 Bacharelada em Engenharia da Computação e Pós Graduada em Engenharia de Software
 - ♒ 25 anos 
